@@ -1,2 +1,2 @@
 # MI-CURRICULUM
-Mi  curriculu x2
+Mi  curriculum x2
